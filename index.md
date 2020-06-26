@@ -10,4 +10,4 @@ Sohn des Herrschers von jenseits des großen Meeres
 
 er sagt:
 
-> Niemand erfährt jemals was gewesen wäre wenn.
+> Ich sehe für jeden so aus, wie er sich mich vorstellt.
