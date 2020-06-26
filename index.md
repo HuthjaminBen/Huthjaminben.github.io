@@ -7,3 +7,7 @@ Sohn des Herrschers von jenseits des großen Meeres
 * kein zahmer Löwe
 * bereit zum Äußersten zu gehen
 * laut brüllend
+
+er sagt:
+
+> Niemand erfährt jemals was gewesen wäre wenn.
